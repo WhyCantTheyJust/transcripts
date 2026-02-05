@@ -1,74 +1,77 @@
-Episode on US strikes on Iran - transcript
+# Episode on US strikes on Iran
+[link to podcast](https://open.spotify.com/episode/4i0aY0EEmnRibU0y0mm61x?si=Iop4MLcdSZyTkqTABG1bGg)
+
+## Transcript
 1 July 2025
 
-William Sinclair
+**William Sinclair**<br>
 Welcome to Why Can’t They Just, looking at politics, policy and getting stuff done. My name is William Sinclair, I'm a Labor member, member of Labor Environmental Action Network and with me is Janaline.
 
-Janaline Oh
+**Janaline Oh**<br>
 I'm Janaline Oh, I'm a former diplomat and also a member of the Labor Party and the Labor Environment Action Network.
 
 Before we start, I'd like to acknowledge that we are both recording this on unceded Aboriginal land, and I would like to pay our respects to elders past and present, and any First Nations listeners that we have today.
 
-William Sinclair
+**William Sinclair**<br>
 So we're recording this episode on the 25th of June. We're days out from the US strikes on Iran, allegedly the Iran nuclear sites where they're trying to build nuclear weapons. And we've heard conflicting reports about the effectiveness of those strikes.
 
 But I'll start with the first question, Janaline. Why can't the Albanese government just stay the hell out of this conflict and let whatever happens with these foreign countries and their weapons do what they're going to do and just leave us out of it?
 
-Janaline Oh
+**Janaline Oh**<br>
 Yeah. So I don't see how we're not out of it. We're not a participant. The Government has not suggested that it wants to get involved in any way at all. It has consistently called for de-escalation and diplomacy, which I think is exactly what we should be doing.
 
 So I think the answer to that first question is that I think Australia is out of it. You know, we're not really, we're not even as much part of the global conversation on this as the European powers.
 
-William Sinclair
+**William Sinclair**<br>
 Yeah, but I mean, there is this issue of the Albanese government, either yesterday or the day before endorsing Trump's strikes on the Iranian nuclear base. What do you think about that?
 
-Janaline Oh
+**Janaline Oh**<br>
 Yeah, yeah. So I have been a very strong supporter of this government's foreign policy. I think they have done a remarkable job in repairing a lot of relationships that the previous government damaged, with China, with the Pacific Islands, with France, with the rest of the European Union.
 
 This is the first action that they have taken that I really, really think was a terrible mistake. We are not a major player in this. We don't need to be a major player in this. It would have been perfectly legitimate from my point of view, for the Government to have said that Iran should not be allowed to have nuclear weapons. I don't think that is particularly controversial. It would have been very reasonable to say Australia desperately urges everybody involved to negotiate to, to resort back to diplomacy and to de-escalate.
 
 I do not think the Australian government needed to go that extra step to endorse the US actions. 
 
-William Sinclair
+**William Sinclair**<br>
 I don't know what was gained by endorsing the strikes. There's nothing that we won in a sense for ourselves. Lots was lost and not much was gained. And I don't know what the reasoning was to endorse the strikes. Like what could be the positive argument for that? 
 
-Janaline Oh
+**Janaline Oh**<br>
 So I would disagree that, you know, we've somehow irreparably damaged our relationship with Iran. Our relationship with Iran has been difficult for a very, very, very long time. So, I mean, it is of no surprise to Iran that Australia in this situation would tend to side with the US rather than with Iran. They would expect that. And I don't think they particularly care, to be honest. 
 
 You know, we haven't had a very constructive relationship with Iran for a very long time. I mean, we have sanctions on Iran. We implement and enforce UN sanctions against Iran. You know, we have loudly denounced their nuclear programmes, we have loudly denounced their human rights abuses of their own people.
 
-William Sinclair
+**William Sinclair**<br>
 Well, I think it's just going to look bad for Albanese's legacy, for one thing, to endorse someone who's going to be reviled in history. Australians don't like Donald Trump. Australians have said at the ballot box that they really don't like the Trumpy stuff, and yet it seems like Mr Albanese himself is leaning into it a bit.
 
-Janaline Oh
+**Janaline Oh**<br>
 I wouldn't overstate it, right? I mean, honestly, this is not, I mean, it's not like he's rushing off and sending Australian planes to go and support these strikes, right?He's not, you know, he's made a couple of rhetorical comments that I think are very unhelpful. I don't think in the scheme of things, and you know, look to be fair to the Government, the thing that they keep emphasising is the need for de-escalation, diplomacy and restraint.
 
-William Sinclair
+**William Sinclair**<br>
 Sure.
 
-Janaline Oh
+**Janaline Oh**<br>
 And they have applied that to all sides. I think they did - as I said, I think they shouldn't have endorsed it. I think it was particularly silly.
 
 So what is good, is that after the US strikes, Iran obviously had to do something to retaliate. It chose to retaliate in the most de-escalatory manner possible. It attacked a US base in Qatar. It signalled clearly beforehand to both the US and Qatar that it was going to attack this base with this type of weaponry at this time to ensure that nobody got hurt. It was clearly a performative action to make a point that we are not just going to roll over, but it was clearly designed to be de-escalatory.
 
-William Sinclair
+**William Sinclair**<br>
 And I, I think that's sort of been what's happened this whole time where Israel's gone in and assassinated generals or assassinated the head of Hezbollah. What was his name again?
 
-Janaline Oh
+**Janaline Oh**<br>
 Hassan Nasrallah.
 
-William Sinclair
+**William Sinclair**<br>
 Yeah, and Nasrallah, there we go. And assassinated people in Iran and bombed Iran and attacked Iran. And Iran, since October 7th, has seemingly taken everything they can to try and find an off ramp out of the escalation. So every time they bomb or every time they attack Israel, they sort of tell the Americans beforehand and the Americans shoot down the missiles and all this kind of thing. It just sort of seems to me like Israel is constantly prodding for war and Iran is constantly, in a way, trying to find an off ramp. Is that your sense as well?
 
-Janaline Oh
+**Janaline Oh**<br>
 No, I think you're being far too kind to the Iranian regime. Like they have really ramped up very unhelpful rhetoric for years and years and years. They did strike Israel in a pretty comprehensive and meaningful way. They just didn't succeed.
 
 So I think Iran recognises the weakness of its position and so when it has really come to the crunch, they have got to a point where they have understood that they need to de-escalate. 
 
-William Sinclair
+**William Sinclair**<br>
 I’m not saying Iran's been de-escalating because they're nice people. I'm saying Iran is de-escalating because they're the weaker party and an escalation's going to be bad. This is not a ‘Iran's great regime’.
 
-Janaline Oh
+**Janaline Oh**<br>
 Yeah, but I mean, to be fair, Iran has also escalated at times. I mean, Iran has also, you know, been funding Hamas and Hezbollah to basically, you know, commit acts of terror against Israeli civilians for years and years and years. So I don't think it is fair to say that Iran is just, you know, a peaceful partner that is not like participating in aggressive behaviour. 
 
 But I think you are correct in saying that in recent times, when it has got to a certain point, the Iranians have then chosen to undertake essentially performative gestures to signal that we are going to retaliate, but we are also going to de-escalate. And I think that has been very helpful.
@@ -78,10 +81,10 @@ That is not going to help World Peace. It is not going to help Israel to have pe
 
 Military solutions can take you to the point where all the parties need to sit down and negotiate a diplomatic solution. In terms of a country's internal dynamics, military solutions can take you to a point where all the parties will sit down and come to a political solution. But it is only the diplomatic solutions and the political solutions that will stick because the kind of effort and resources that you have to put into essentially, you know, continually repressing people are just way too great and they increase over time.
 
-William Sinclair
+**William Sinclair**<br>
 The Iranians have said they might, or the Iranians are threatened that they might close the Strait of Hormuz, blocking 20% of the world's oil traffic, and they might get the Houthis to block the Red Sea. If they did that, what do you think would happen next?
 
-Janaline Oh
+**Janaline Oh**<br>
 Oh, I reckon that would be an extremely unfortunate choice, right? Because I think then you would probably get the US and also a bunch of other countries much more willing to take military action against both the Houthis and Iran. I think they would only do it as a kind of final kamikaze act because I think that's exactly what it would be. 
 
 But the other thing that I would say for those people in Israel and the United States who are saying, oh, wouldn't it be great if by doing this, destroying the nuclear capability and, you know, attacking Iran, we toppled the regime and then got something so much better?
@@ -109,10 +112,10 @@ So then you get the third order issue where if Japan and Korea, if you start hav
 
 So now Donald Trump is talking about building a multi trillion dollar Golden Dome over the United States, right? So this missile shield that Israel has, which has been pretty effective.
 
-William Sinclair
+**William Sinclair**<br>
 It doesn't work that well, the missile shield.
 
-Janaline Oh
+**Janaline Oh**<br>
 Well no, it has worked extremely well, right? It has worked extremely well in the face of, you know, pretty constant attacks from Hezbollah, from Hamas and from Iran in the past. But, OK, it's not perfect. So the absolute barrage of missiles that Iran sent recently, actually, you know, quite a few of them got through because it had been degraded.
 
 But the other thing is, look at the size of Israel. Israel is tiny. Having this kind of geographically based defence over Israeli airspace is not the same as the continental United States, right?
@@ -124,36 +127,36 @@ So in saving some millions of dollars in protecting Japan and Korea, he has now 
 
 So I think this is basically, you know, his assessment of the limitations of the Trump doctrine, if you like. And I think in this case, my concern is that Australia in its own small and probably, you know in the grand scheme of things, not very significant way, endorsing that kind of behaviour I think has sort of contributed in a little tiny way to making us all less safe.
 
-William Sinclair
+**William Sinclair**<br>
 The issue, the issue with the nukes or bombing the nukes is that Iran's going to claim that they're getting the nukes for self defence and deterrence, and then Israel's going to claim that they're going to bomb Iranian sites also for self defence to avoid getting nuked by the Iranians.
 
-Janaline Oh
+**Janaline Oh**<br>
 Yeah. So interestingly, Israel did a similar thing in 1981.
 
-William Sinclair
+**William Sinclair**<br>
 Sure.
 
 
-Janaline Oh
+**Janaline Oh**<br>
 So it attacked a nuclear reactor that was under construction in Iraq on the basis that Iraq intended to use it to build nuclear weapons. And like Iran, Iraq had, you know, long expressed the view that Israel had no right to exist and that if Iraq got the opportunity, it would obliterate it.
 And so Israel argued that allowing Iraq to have nuclear weapons would enable it to build them and use them against Israel.
 
 Interestingly, subsequent intelligence reports basically justified Israel's claim that Iraq did in fact intend to use that reactor to eventually build nuclear weapons.
 
-William Sinclair
+**William Sinclair**<br>
 Right.
 
-Janaline Oh
+**Janaline Oh**<br>
 But there was no evidence that they intended to use them specifically against Israel. And it is quite arguable that they actually wanted to, you know, keep them as a kind of deterrent to Israel attacking Iraq.
 
 The UN Security Council, so interestingly, the UN Security Council in that case unanimously passed a resolution in 1981 condemning Israel for destroying that nuclear reactor.
 
 So that included the United States in 1981. So I think that, I mean, that is a direct, I guess, analogy to the current situation where, you know, the International Atomic Energy Agency has found that Iran has probably enriched uranium to 60%, which is well beyond any kind of peaceful or civilian use. You would only enrich uranium to that level if your ultimate goal was to create a weapon.
 
-William Sinclair
+**William Sinclair**<br>
 Yeah.
 
-Janaline Oh
+**Janaline Oh**<br>
 But it is not at all clear, firstly, how close Iran was to actually building such a weapon, and secondly, the Director of National Intelligence in the US testified to Congress under oath only a few weeks ago that US intelligence did not think that Iran was imminently planning to develop a nuclear weapon and that they they did not have evidence that the Iranian leadership had ordered the Iranian military to develop such a weapon.
 
 Now, Donald Trump when confronted with this recently said, oh, they're wrong. So, you know, the Director of National Intelligence, Tulsi Gabbard, has subsequently, you know, sent out a social media post saying, oh, you know, the fake media has misinterpreted me or something to that effect to contradict what she testified under oath to Congress.
@@ -162,30 +165,30 @@ You know, I mean, Israel and Donald Trump have not given the world any kind of e
 
 I think this is something that at very best, let us assume that Iran was planning to develop a nuclear weapon. It was not imminent and there was a negotiating process underway at the time of the Israeli strikes.
 
-William Sinclair
+**William Sinclair**<br>
 I just want to come around to effectiveness. There's a leaked Intelligence report maybe yes- this morning that the leaked US intelligence that suggests that the bombing did minimal damage and it only set the Iranians back by a few months. So in terms of effectiveness…
 
-Janaline Oh
+**Janaline Oh**<br>
 I also saw reports of that leaked intelligence. I noticed that the Trump administration's response was, oh, this is fake news, and also the press secretary, I think, added that this was a leak by a lowlife loser in the intelligence community.
 
-William Sinclair
+**William Sinclair**<br>
 Yes.
 
-Janaline Oh
+**Janaline Oh**<br>
 Because why pass up the opportunity to have a personal attack? I don't see how it really supports the case that it's not true.
 
-William Sinclair
+**William Sinclair**<br>
 Yeah.
 
-Janaline Oh
+**Janaline Oh**<br>
 Right, because when you start attacking the person who leaked it as a lowlife loser, you know, if it was fake, surely you would just say it's come from nowhere, ignore it. 
 
 Anyway, aside from that, I think it is quite possible, I mean, the international inspectors, from what they've seen from the sort of satellite imagery, have concluded that the bombs probably did some damage, but it is not clear how much.
 
-William Sinclair
+**William Sinclair**<br>
 Yeah.
 
-Janaline Oh
+**Janaline Oh**<br>
 And so if we just get back to how you would stop Iran from developing a nuclear weapon. There was a process in 2015 that was concluded by the Obama administration with Russia, China, the UK, France and Germany, so the other permanent five members of the UN Security Council, plus Germany, plus the European Union, whereby those countries agreed to limited sanctions relief on Iran in exchange for Iran submitting themselves to a very, very rigorous inspection and reporting regime overseen by the International Atomic Energy Agency.
 
 That regime was working, right? Iran complied with all of its obligations under that agreement, and the UN had what it assessed as complete oversight over Iran's nuclear activities, so it knew exactly what Iran was enriching, where, to what level, and where everything was kept.
@@ -194,10 +197,10 @@ Donald Trump withdrew from that agreement unilaterally and he imposed - he said 
 
 And I think the reason that - I mean, a cynical person might suggest that Netanyahu was opposing it because it actually removed his only argument for attacking Iran. And we know that he's wanted to attack Iran for a long time, right?
 
-William Sinclair
+**William Sinclair**<br>
 That makes sense.
 
-Janaline Oh
+**Janaline Oh**<br>
 So he has seen Iran as a threat for a very long time, and he did not want this process to normalise Iran. So he persuaded Trump or Trump's advisors persuaded Trump to withdraw from this agreement that was actually working. Subsequent to that, they imposed crippling sanctions.
 And it wasn't just sanctions on Iran, it was also secondary sanctions on any other country's companies that traded with Iran. So the Europeans were not able to continue that agreement in the absence of the US.
 
@@ -209,10 +212,10 @@ So I think you would have to argue from an effectiveness point of view that the 
 
 And frankly, the message from this, if I were Iran, the only message I can say that you would take out of this is: the best way to secure our own security against attack is to have a nuclear weapon. 
 
-William Sinclair
+**William Sinclair**<br>
 Yeah, I totally agree.
 
-Janaline Oh
+**Janaline Oh**<br>
 So let's go the North Korean route. Let's just withdraw from the Nonproliferation Treaty. Let's withdraw from the IAEA and let's just go hell for leather to do what we can to create a nuclear weapon.
 
 Now it's a bad idea for people to have nuclear weapons because then you create this kind of prisoner's dilemma issue, where, well, it would be better if nobody had nuclear weapons. But if those people have nuclear weapons, it's better for me if I also have nuclear weapons. And then it just escalates. And that was the reason that was actually the whole rationale behind the nuclear Non-Proliferation Treaty.
@@ -225,20 +228,20 @@ So over the last 80 years, successive Australian governments, and I have to say 
 
 All of these are examples of international law that Australia has helped to build, whereby countries agree to constrain their own behaviour in the interests of orderly international relations. And that is absolutely central to our ability to navigate our way in a world where we are never going to be powerful enough to just bully our way into, you know, well, bully others into accepting our interests.
 
-William Sinclair
+**William Sinclair**<br>
 The United States has invaded and overthrown countries all over the world, including, ironically enough, Iran. So in terms of the sort of US-led world order, I guess my kind of question is what world order? Like where's the order?
 
-Janaline Oh
+**Janaline Oh**<br>
 I think there has been an order. I think the fact that, you know, we managed to navigate the Cold War without nuclear war demonstrates that there has been some order. Now, I will say the US has, ever since that order was constructed after the Second World War, has always been a, let's say, a very complex and difficult participant in that order. 
 
 Because the US, I think, has generally abided by international law. They have generally behaved in a way that is consistent with upholding international law. But they have also always reserved for themselves this sort of superpower exceptionalism that says, but when we think it suits us, we are just gonna go in and do this thing that we think supports our interests. 
 
 And I think the most egregious example of that was the invasion of Iraq, which, you know, had, I mean, Australia was part of that process on the US side. I really think the legal basis for that invasion was very, very tenuous, made even more tenuous to the point of evaporating when the UN weapons inspectors who went in after the fact discovered that there were no weapons of mass destruction, when that was the entire basis of the rationale for going in
 
-William Sinclair
+**William Sinclair**<br>
 If you're against Iran developing nuclear weapons, and Israel's getting rid of those nuclear weapons, assuming that Iran getting rid of nuclear weapons is a good idea, what's wrong with Israel going out and preventing that using all means necessary?
 
-Janaline Oh
+**Janaline Oh**<br>
 Lawfulness and what are the lawful means of getting rid of Iran, Iran's nuclear weapons? Now my problems with the strikes by Israel and the US on the nuclear facilities under international law, are that the UN Charter is very explicit that countries can only act militarily against each other if either the Security Council says they can - and the Security Council clearly hasn't in this case, and you know, given the vetoes held by China and Russia, the Security Council is never gonna authorise that kind of action.
 
 The other situation in which countries can act militarily against each other is in self defence in an emergency. There is also, in addition to all of this, there is a contested doctrine of what is called anticipatory self defence in international law. 
@@ -253,18 +256,18 @@ In other words, if you have established that someone is just about to attack you
 
 Obviously the US and the British, you know, have never resolved the question of whether the circumstances of that, the facts of that case, justified it. But they have agreed on that principle and that has sort of come down through customary international law as a principle of anticipatory self defence.
 
-William Sinclair
+**William Sinclair**<br>
 So Janaline, we're about to wrap up this episode. Do you have any final thoughts you'd like to offer with regards to Iran or the international community or everything that's going on in the conflict?
 
-Janaline Oh
+**Janaline Oh**<br>
 Yeah, so I think one of the other really sad things about this, and I think it was probably not accidental, is that the Israeli strikes on Iran have just massively distracted global attention to what is going on in Gaza, which continues to be heartbreaking, catastrophic for the population of Gaza, and, you know, again, talking about international law, I really think that there is now fairly substantial evidence that Israel is not abiding by its international legal obligations, to say the least.
 
 Having said that, we could probably do a whole episode and we probably should do a whole episode on Israel and Palestine.
 
-William Sinclair
+**William Sinclair**<br>
 Thank you so much to Callum Sinclair and Euca Lord for helping edit The music is called Insurrection, written by Pierre Chrétien, performed by the Souljazz Orchestra, courtesy of Do Right Music, Inc.
 
 I'm William Sinclair.
 
-Janaline Oh
+**Janaline Oh**<br>
 I'm Janaline Oh, and this is Why Can't They Just.
