@@ -2,7 +2,7 @@
 [link to podcast](https://open.spotify.com/episode/5YhgsYtk1jjucG4Jgp7bD2?si=tJHB7t9VQoumsd85kTYIXQ)
 
 ## Transcript
-14 September 2025
+15 September 2025
 
 **Callum Sinclair**<br>  
 Welcome to Why Can't They Just, looking at politics, policy and getting stuff done. My name is Callum Sinclair. I'm a member of the Labor Party and joining me today is Janaline Oh.
