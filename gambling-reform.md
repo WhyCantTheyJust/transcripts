@@ -124,7 +124,7 @@ The way that the Commonwealth has worked increasingly is that the federal govern
 But you know, it's not perfect.
 
 **Callum Sinclair**<br>
-So the music is called Insurrection, written by Pierre Chrétien, performed by the Soul Jazz Orchestra, courtesy of Do Right Music Incorporated. My name is **Callum Sinclair**<br>.
+So the music is called Insurrection, written by Pierre Chrétien, performed by the Soul Jazz Orchestra, courtesy of Do Right Music Incorporated. My name is Callum Sinclair.
 
 **Janaline Oh**<br>
-My name is **Janaline Oh**<br>, and this is Why Can't They Just.
+My name is Janaline Oh, and this is Why Can't They Just.
